@@ -1,0 +1,9 @@
+O ano é 2021. Vivemos na sombra de uma pandemia global há mais de um ano. Tenho o privilégio de trabalhar a partir de casa sem qualquer problema, e até de forma vantajosa para mim: escuso de perder duas horas por dia em viagens de e para o trabalho. E apesar de tudo o que se passa... estou bem.
+
+Qual é a desculpa que tenho para estar uma lástima em termos de leitura? Não sei. Apenas sei que durante vários anos lia qualquer coisa como cem livros por ano. Com o tempo e a paciência a reduzirem-se com o estender dos meus vetustos vinte e tal anos, esse número foi-se reduzindo naturalmente. O acréscimo de responsabilidades teve a sua quota parte de responsabilidade, claro. E por mais que eu prefira não ter que andar de comboio, a verdade é que ainda são umas horas por dia que costumava usar para ler e que agora ocupo a dormir ou a fazer outra coisa qualquer.
+
+Já trabalho a tempo inteiro há mais de três anos, o que teve de certeza influência na quantidade de livros lidos por ano. Continuei sempre com o "objectivo" dos cem livros por ano, mas setenta e cinco é quase cem, e cinquenta é quase setenta e cinco, portanto tudo normal.
+
+E no entanto cá estamos, quase no fim do terceiro mês de 2021, e eu acabei agora a minha primeira leitura do ano. O famoso "A Quinta dos Animais", também conhecido por "O Triunfo dos Porcos" do incrível George Orwell. Um livro de leitura rápida, com prosa simples e umas míseras cento e cinquenta e seis páginas (incluindo três textos introdutórios e ainda dois prefácios do autor a outras edições).
+
+Isto é tão abaixo do tipo de volumes de leitura a que estou habituado que me sinto genuinamente envergonhado. A verdade é obviamente mais complexa, e este talvez tenha sido o livro perfeito para apontar o problema de forma assertiva.
