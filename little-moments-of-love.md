@@ -1,0 +1,7 @@
+Há poucas coisas mais agradáveis do que uma leitura leve e fofa. Dá para desanuviar, dá para rir e dá para distrair, com pouco ou nenhum esforço mental. Este livro é um exemplo de uma dessas leituras. A minha namorada é fã destes pequenos *comics* internetianos há algum tempo, e esta colectânea reúne bons exemplos dos micro-cenários que a autora normalmente retrata. Cenários fofos, palermas e repletos de apreciação entre dois membros de um casal diferente de todos os outros, ou seja, normal.
+
+É inevitável identificar-me com algumas das situações. Não todas, mas bastantes. Os casais são todos únicos e mais ou menos iguais, cada um à sua maneira, e este pequeno livro tem algo para todos os gostos. Coisas básicas como ciúmes, inveja e a alegria das pequenas coisas, e coisas mais complexas como o amor indescrítivel que se manifesta de mil e uma maneiras, algumas sentimentais e lamechas, outras palermas e cheias de carinho.
+
+O que mais gosto nestas tiras é a forma simples como retrata coisas que parecem estranhas a toda a gente, dentro e fora do casal, mas que alguém, inevitavelmente, acha normal. É também refrescante ver como se conseguem explorar as perspectivas de duas pessoas enquadradas da mesma forma.
+
+Fica também demonstrado que nisto das relações, essa construção complexa, multifacetada e outros adjectivos complicados de ar chique, uma das coisas mais importantes são mesmo os *pequenos momentos de amor*.
